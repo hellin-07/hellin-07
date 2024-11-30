@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hellin-07
-- 👀 I’m interested in sports, art and 
+- 👀 I’m interested in sports, art
 - 🌱 I’m currently learning languages and robotics
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
